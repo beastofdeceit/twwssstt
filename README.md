@@ -1,14 +1,16 @@
 <div align="center">
 
-( ˶ˆ꒳ˆ˵ )
+
+![wheeler](https://komarev.com/ghpvc/?username=perfectionism&label=cannibal&color=000000)
+
+I have a dream about her
+
+![my image](https://github.com/perfectiionism/perfectiionism/blob/f0a1e3f48450e3869ecc7eeea6090407eba4b61a/ee254d997b8055b9815768ea34a6ac0c.gif?raw=true)
+
+sign ata
+
+[Rentry](https://rentry.co/michaelwheeler)⠀⠀[Matching](https://rentry.co/byIeer)⠀⠀[Ata](https://facepaints.atabook.org/)
 
 
-![wheeler](https://komarev.com/ghpvc/?username=perfectionism&label=wheeler&color=2ec4b6)
-
-![my image](https://github.com/perfectiionism/perfectiionism/blob/d33dcb574a7013afa588c5f2ad564112761b60eb/a9ded852aea69913491d8d92d7151666%20(1).jpg?raw=true)
-
-[Rentry](https://rentry.co/michaelwheeler)⠀⠀[Matching Rentry](https://rentry.co/byIeer)⠀⠀[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/cleradin)⠀⠀[🎁StrawPage](https://mikewheelerss.straw.page/)
-
-
-[best people](https://rentry.co/buzzy-bees)
+[bees](https://rentry.co/buzzy-bees)
 </div>
