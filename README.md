@@ -9,6 +9,6 @@ I have a dream about her
 
 sign ata
 
-[Rentry](https://rentry.co/electriclove)⠀⠀[Shared R](https://rentry.co/-wenciair)⠀⠀[Shared R2](https://rentry.co/byIeer)⠀⠀[Ata](https://facepaints.atabook.org/)
+[Rentry](https://rentry.co/electriclove)⠀⠀[Ata](https://facepaints.atabook.org/)
 
 </div>
