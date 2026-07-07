@@ -4,15 +4,15 @@
 ![views](https://komarev.com/ghpvc/?username=perfectionism&label=cannibal&color=000000)
 
 
-![](https://github.com/traummannn/traummannn/blob/2e5d00dfa9aeab9942093c5319a101ce1a73303f/2e7e4f46eb6cd56ce29747b798fbc4c2.jpg)
+![](https://github.com/traummannn/traummannn/blob/899ca653f6152c5f2940e9bf29c62cc6573a4265/fd8fdd3b6103a4962a4b2c4445d1cc33.jpg)
 
 <a href="https://facepaints.atabook.org/">
-  <img src="https://github.com/traummannn/traummannn/blob/e0345f177765df4b6ebebe714872785e953276e6/Untitled663_20260702233155.png" width="160">
+  <img src="https://github.com/traummannn/traummannn/blob/60778b9281be17ef3b3f4a6806e8123bbe91c7f4/Untitled663_20260707195209.png" width="160">
 </a>
 
     
 <a href="https://rentry.co/last-uchiha">
-  <img src="https://github.com/traummannn/traummannn/blob/0f8c23c5091660b79a7dc536d170f3496b86d9c7/Untitled663_20260702233306.png" width="160">
+  <img src="https://github.com/traummannn/traummannn/blob/7710104b8629cbbce8142917b12b4fac67730014/Untitled663_20260707195030.png" width="160">
 </a>
 
 </div>
